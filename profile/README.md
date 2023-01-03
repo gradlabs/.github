@@ -7,3 +7,6 @@ We believe that anyone whom their potential could be unlocked and supported by a
 **4. Excellence** <br> *We participare only in markets where we can make significant contribution.* <br><br>
 **5. Collaboration** <br> *We believe in deep collaboration and cross-pollination of our groups allow us to innovate in a way that others cannot.* <br><br>
 **6. Accept mistake** <br> *We have the self-honesty to admit when we’re wrong and the courage to change.*
+## Customers
+<img src="https://www.logo-designer.co/storage/2018/06/2018-new-ogilvy-logo-design-by-collins.png" alt="ogilvy" width="200"/>
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSczZoPZn0AmKbTGmtYdXpbRX_yw895CMozxA&usqp=CAU" alt="ogilvy" width="200"/>
